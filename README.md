@@ -13,3 +13,7 @@ B)Give passowrd as per username.Passwords are respectively:
 4)075<br>
 5)074<br>
 C)Bank will open so enjoy it.You can deposit money or can withdraw it or check your balance just
+<br><br><br><br><br>
+Made by NyxVeil.<br>
+To contact:<br>
+nyxveil78@gmail.com
